@@ -6,6 +6,7 @@
 🌐 Website: https://quiverai.trade/  
 🐦 Twitter: https://x.com/QuiverAiTrade  
 
+Pump.fun : Very soon
 ---
 
 ## 🚀 About Quiver AI
